@@ -1,4 +1,4 @@
-https://www.youtube.com/embed/XLCjHN7Q-9o
+[![Watch the video](https://i.imgur.com/vKb2F1B.png)](https://www.youtube.com/embed/XLCjHN7Q-9o)
 ##
 Я влетаю на бит, ниггер пидор убит <br /> 
 Я поднимаю свой Glock в район его тупой головы <br />
